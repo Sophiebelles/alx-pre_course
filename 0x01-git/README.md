@@ -1,1 +1,1 @@
-My second commit
+My awesome and sophicid upcoming projects!
